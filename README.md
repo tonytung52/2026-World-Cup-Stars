@@ -1,1 +1,0 @@
-# 2026-World-Cup-Stars
